@@ -10,4 +10,4 @@ I plan to cooperate with one person and his name is Woyhi Tahsin
 
 ## Do you have any questions of your own?
 
-No question om my own
+No question of my own
